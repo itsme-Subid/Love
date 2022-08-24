@@ -1,2 +1,2 @@
 # Love
-Dedicated to my first and last love
+Dedicated to my first
